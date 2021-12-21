@@ -13,4 +13,4 @@ Gostou do projeto? Apoie o Tio Mu!<br>
 Veja abaixo como você pode me apoiar.<br>
 
 Banco do Brasil AG: 0766-8 C/P: 23893-7<br>
-PagSeguro: https://pag.ae/7WHb8KXHK
+PagSeguro: https://pag.ae/7XQP9Gb2M
